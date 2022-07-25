@@ -18,6 +18,8 @@ PROJECTS
 https://myeducal.com
 Educational platform. Designed for students.
 MVC Design Pattern PHP , HTML ,CSS , JS , PSD, Bootstrap 5.x
+
+
 TECHNICAL SERVICE (FREELANCE)
 
 ANALYSIS CONTENT
