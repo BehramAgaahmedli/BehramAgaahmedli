@@ -48,7 +48,7 @@ Open-mindedness
 
 S K I L L S
 
-MYSQLİ
+MYSQL
 
 PHP
 
