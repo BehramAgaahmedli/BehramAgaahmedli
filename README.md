@@ -10,6 +10,8 @@ behramagaehmedli97@gmail.com
 
 https://www.instagram.com/accounts/login/?next=/behram_agaahmedli/
 
+https://www.facebook.com/profile.php?id=100006182538322
+
 E D U C A T I O N
 
 AZERBAIJAN TECHNICAL
