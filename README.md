@@ -7,6 +7,7 @@ a big hunger for new knowledge. l have to inspire other people around
 me and get inspired by them. Optimist for life...
 
 behramagaehmedli97@gmail.com
+
 https://www.instagram.com/accounts/login/?next=/behram_agaahmedli/
 
 E D U C A T I O N
